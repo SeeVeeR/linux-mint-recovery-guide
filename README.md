@@ -12,6 +12,12 @@
 ---
 
 ✍ Автор: Сергей  
-[💖 Поддержать автора на Boosty](https://boosty.to/seeveer/donate)
+
+📥 Скачать PDF на Boosty:  
+[https://boosty.to/seeveer/posts/16cdadfd-060e-4646-be9b-8f225f3945c1](https://boosty.to/seeveer/posts/16cdadfd-060e-4646-be9b-8f225f3945c1)
+
+💖 Поддержать автора — любая сумма:
+[https://boosty.to/seeveer](https://boosty.to/seeveer)
+
 
 📣 Больше гайдов скоро!
